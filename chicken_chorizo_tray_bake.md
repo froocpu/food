@@ -9,7 +9,7 @@ Serves 3/4
 - 1/2 red onion
 - 1/2 bag baby potatoes
 - Salt and pepper
-- Olive oil (or garlic oil)
+- Garlic oil
 - Oregano
 
 ## Method
