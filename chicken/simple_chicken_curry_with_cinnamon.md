@@ -6,7 +6,7 @@ Pinched from a BBC website. Cooked it once with Amy's fam, bloody delish.
 
 Piccy because cba.
 
-![](img/simple_chicken_curry_with_cinnamon.jpg)
+![](img/simple_chicken_curry_with_cinnamon.png)
 
 ## Method
 
